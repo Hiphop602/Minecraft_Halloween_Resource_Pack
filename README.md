@@ -1,1 +1,1 @@
-# Halloween_Minecraft_Resource_Pack
+# Halloween Minecraft Resource Pack
